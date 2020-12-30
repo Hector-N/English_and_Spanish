@@ -3,8 +3,8 @@
 ## Description
 This is personal notes for KESPA lessons.
 
-КЭСПА - is an acronym that means "Как Это Сказать По Английски"  
-or in English: "How To Say It In English"
+КЭСПА - is an acronym that means "How To Say It In English"  
+or in Russian: "Как Это Сказать По Английски"
 
 KESPA methodology of studying offers the way to achieve ability  
 to communicate in English.  
