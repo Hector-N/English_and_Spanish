@@ -41,6 +41,6 @@ I `have not got` a car.
 * to have a good ear for music
 * He (she) is such a dear
 
-## Voice records attached
-* [Jan 01 KESPA 7 sp2.mp4](https://mega.nz/file/MtUVgCIY#lM9SNGSocduZVc576xW3aHMVUwRhoORXEI_s8E9931w)
-* [kespa less 7 tech1--01-01-2021-15-28-00.wav](https://mega.nz/file/cochiYwD#BZEHTeQmFIHpKHF1dHoQeCRLBQEnv3XssdZlUbe7_TU)
+## Pronounciation practice (voice record)
+* [KESPA_7_sp2_2021_01_01](https://mega.nz/file/YkkhQCIR#539PoN781XXsWvorlfMKH0Rf1U_jDDSdoJqwcrgH-7U)
+* [KESPA_7_ SP1_01_01_2021_15_28_00](https://mega.nz/file/A81hmCYB#hPGKwSqBINOrSccvJ2NJo49odE-YsOLSYB-ITRTjic8)

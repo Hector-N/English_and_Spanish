@@ -73,3 +73,7 @@ A man who is willing to die for his principles.
 
 We honour him for his integrity, his principles and for his great courage in confronting power.  
 `Мы чтим его за его порядочность, его принципиальность и за его большое мужество в противостоянии силе.`  
+
+
+## Pronounciation practice (voice record)
+[KESPA lesson 5. Speach technique 2. record20201229225515](https://mega.nz/file/Fg9hCQyA#ap8yJlB_4f88ZLFBbSIT2EcyrFRr5B-c7fVTPxA6gco)
