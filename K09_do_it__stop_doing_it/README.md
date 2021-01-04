@@ -15,5 +15,5 @@ Don't smoke here.
 Stop smoking here!  
 
 
-## Pronounciation practice (voice record)
+## Pronunciation practice (voice record)
 [KESPA lesson 9. Speach technique 2. record20210103133411](https://mega.nz/file/E19V3YqR#xDdsC3-AYWrhPLs6LARrE1eOqeh-jkqZhdPYNMC23G4)

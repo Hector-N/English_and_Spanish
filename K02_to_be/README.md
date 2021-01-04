@@ -67,5 +67,5 @@ Play the fool. That's what you're here for.
 * stuff
 
 
-## Pronounciation practice (voice record)
+## Pronunciation practice (voice record)
 [KESPA lesson 9. Speach technique 2. record20210102161730](https://mega.nz/file/hh0zjCzL#ptgZqKcKJIQRPpZ0bbQISjDQE4lqjLIWUdnlJEW7XyQ)
