@@ -95,4 +95,4 @@ Two ways to express this phrase :
 
 
 ## Pronunciation practice (voice record)
-[KESPA lesson 8. Speach technique 2. record20210102154240](https://mega.nz/file/E883EQrT#aa7PUzTbiB6Vk7ImWUDdP6oc-61ETII-44tbi_xd2m0)
+[KESPA lesson 8. speech technique 2. record20210102154240](https://mega.nz/file/E883EQrT#aa7PUzTbiB6Vk7ImWUDdP6oc-61ETII-44tbi_xd2m0)

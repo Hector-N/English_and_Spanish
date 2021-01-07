@@ -44,7 +44,7 @@ How long has he been waiting for the bus?
 то используется время **present perfect** (о котором в следующих уроках).  
 
 ## Pronunciation practice (voice record)
-[KESPA lesson 10. Speach technique 2. record20210104225057](https://mega.nz/file/QgV21DLb#ZGpwESNNWLl-Bvgbz9biY2pysCwEha2Vq6txEpq70Ow)
+[KESPA lesson 10. speech technique 2. record20210104225057](https://mega.nz/file/QgV21DLb#ZGpwESNNWLl-Bvgbz9biY2pysCwEha2Vq6txEpq70Ow)
 
 
 ### Additional words

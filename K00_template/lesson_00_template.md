@@ -34,4 +34,4 @@ or
 
 
 ## Pronunciation practice (voice record)
-[KESPA_11_record20210105143559 - Speach technique 2](https://)
+[KESPA_11_record20210105143559 - Speech technique 2](https://)

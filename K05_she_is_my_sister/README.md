@@ -76,4 +76,4 @@ We honour him for his integrity, his principles and for his great courage in con
 
 
 ## Pronunciation practice (voice record)
-[KESPA lesson 5. Speach technique 2. record20201229225515](https://mega.nz/file/Fg9hCQyA#ap8yJlB_4f88ZLFBbSIT2EcyrFRr5B-c7fVTPxA6gco)
+[KESPA lesson 5. speech technique 2. record20201229225515](https://mega.nz/file/Fg9hCQyA#ap8yJlB_4f88ZLFBbSIT2EcyrFRr5B-c7fVTPxA6gco)

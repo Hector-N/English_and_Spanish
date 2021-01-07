@@ -29,3 +29,5 @@ Different shells have slightly **varying** syntax.
 It is the best practice to **enclose** variable in quotes.  
 
 I found I had a knack for mentoring and teaching others, and I get a lot of satisfaction out of helping people upgrade their skills.
+
+To **speak** English, but English **speech**
