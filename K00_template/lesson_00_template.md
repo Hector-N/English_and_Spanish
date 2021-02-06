@@ -1,6 +1,6 @@
 # Lesson XX. Title
 
-## Explain main idea here
+## Concept
 
 
 
@@ -33,5 +33,6 @@ or
 
 
 
-## Pronunciation practice (voice records)
+## Practice (voice records)
+
 [KESPA_11_record20210105143559 - Speech technique 2](https://)
