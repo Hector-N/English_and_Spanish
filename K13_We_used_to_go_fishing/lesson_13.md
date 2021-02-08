@@ -55,4 +55,9 @@ There used to be 5 cinemas in the town but there is only one now.
 
 
 ## Pronunciation practice (voice record)
+
 [KESPA_13_SP2_record20210107120432](https://mega.nz/file/os8EwL6L#VEV2c0MCFM6bYbtsjFLABiUHU7spKuj1tm5dk_adzPw)
+
+[KESPA_13_SP_1__2021_02_08__1623.mp3](https://mega.nz/file/wsVR2I6T#kZl79u0e94JITCXlztnvq8xqygvdNxDGCEdI_poxWro)
+
+[KESPA_13_SP_2__2021_02_08__1634.mp3](https://mega.nz/file/AkUTAC7L#M0w91Dv0GS6IPhdFGJvoLHe_jjHf57Lyx-DwWuonVN4)
