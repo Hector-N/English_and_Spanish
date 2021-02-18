@@ -136,5 +136,10 @@ I hope my husband phones this evening.
 I hope it doesn't rain tomorrow.  
 
 
-## Pronunciation practice (voice records)
+## Practice (voice records)
+
 [KESPA_22_SP_2__2021_01_21__11_32.m4a](https://mega.nz/file/h11wiTiA#jDcJyCo9wgtrEQgKn4TD7Mz4-4oqMRuTZFKpH5pSuyk)
+
+[KESPA_22_SP_1__record_2021_02_18__1926.3gpp](https://mega.nz/file/p5syHCYB#xySu9rIKP9JtXGyhjiyGQluOh0O2wQVCDx_pI0sbbe0)
+
+[KESPA_22_SP_2__record_2021_02_18__1932.3gpp](https://mega.nz/file/4tsCzCDB#GkOo6wIEyYo9A2g0Ecdqvv2T1DD09BAiPWs_ik-6JFw)
