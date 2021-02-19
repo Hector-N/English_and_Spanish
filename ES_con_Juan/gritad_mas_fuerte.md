@@ -6,6 +6,25 @@
 
 [gritad_más_fuerte_EsConJuanPodcast_2021_02_18.3gpp](https://mega.nz/file/At92QCSb#pYcCT2b9EEA60GhGNhgypypnACM0LQ361aXHp6BbZfc)
 
+[gritad_más_fuerte_EsConJuanPodcast_2021_02_19.3gpp](https://mega.nz/file/pxVDUKwT#iWRNNLpJIjGpz2-KeX9AcL1rhNKIsMXm6YxNINmxIYw)
+
+
+## Notes
+
+**IMPERATIVO - Spanish Imperative Mood**  
+[Imperative in Spanish | SpanishDict](https://www.spanishdict.com/guide/spanish-imperative-mood)  
+
+The imperative mood is used to tell someone to do something in a direct manner. More simply put, sentences in the imperative mood are commands.  
+
+person | v-form
+----|------
+yo | -
+tú | grita
+él | grite
+nosotros | gritemos
+vosotros | gritad
+ellos | griten
+
 
 ## Transcript
 Estamos en el año 1999, en junio de 1999. Estamos en San Sebastián, en el País Vasco, en Euskadi. 
