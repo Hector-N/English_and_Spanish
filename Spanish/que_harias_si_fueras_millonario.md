@@ -250,3 +250,61 @@ Actúan como **si tuvieran** solo uno.
 ## A cantar:)
 
 [Cartel de Santa - Si Estuviera en Dubái - YouTube](https://www.youtube.com/watch?v=9ZYc_w51zv8)
+
+[Si Yo Fuera Presidente, Ramon Torres - YouTube](https://www.youtube.com/watch?v=v6IhbEfYmlU)
+
+[Si Yo Fuera Presidente (2020 en Vivo), Ramon Torres - YouTube](https://www.youtube.com/watch?v=Vnw4dkExAnI)
+
+
+## Mis preguntas
+
+¿Qúe comerías, si tuvieras oportunidad a comer todo lo que quieres en un solo día?
+
+¿Si fueras un perrito, qúe raza preferirías ser?
+
+¿Si atraparas un pez dorado y tuvieras tres deseos, qué desearías?
+
+¿Si en el mundo no hubiera ninguna maldad, crees que existiría la bondad?
+
+Si te ofrecieran a viajar a otros mundos en un nave cósmica, dejarías a su familia aquí en la Tierra?  
+¿Viajarías al otros mundos?
+
+¿Si tuviéramos que vivir sin electricidad, sobreviviríamos?  
+
+Condicional | **sobrevivir**
+---- | ----
+yo | sobreviviría
+tú | sobrevivirías
+él/ella/Ud. | sobreviviría
+nosotros | sobreviviríamos
+vosotros | sobreviviríais
+ellos/ellas/Uds. | sobrevivirían
+
+Pretérito imperfecto | **sobrevivir**
+---- | ----
+yo | sobreviviera
+tú | sobrevivieras
+él/ella/Ud. | sobreviviera
+nosotros | sobreviviéramos
+vosotros | sobrevivierais
+ellos/ellas/Uds. | sobrevivieran
+
+
+
+ pers | **atrapar**
+---- | ----
+yo | atrapara
+tú | atraparas
+él/ella/Ud. | atrapara
+nosotros | atrapáramos
+vosotros | atraparais
+ellos/ellas/Uds. | atraparan
+
+ pers | **conocer**
+---- | ----
+yo | conociera
+tú | conocieras
+él/ella/Ud. | conociera
+nosotros | conociéramos
+vosotros | conocierais
+ellos/ellas/Uds. | conocieran
