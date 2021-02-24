@@ -58,4 +58,9 @@ Where are you going tomorrow?
 
 
 ## Pronunciation practice (voice records)
+
 [KESPA_23_SP1__2021_01_22__11_17.m4a](https://mega.nz/file/8l8yzYzZ#C6--20j3f6KiIeQXlWTfWlqTK7ARVY60-s8AyCOKP10)
+
+[KESPA_23_SP_1__2021_02_23__0948.3gpp](https://mega.nz/file/9k02XQJR#IIcbZrEiYH-jQT6CEydap36m4WuRGeCtOZwrKtZ2TWU)
+
+[KESPA_23_SP_2__2021_02_23__1004.3gpp](https://mega.nz/file/xo8iySBB#hbP-j2ZUc6E0Mq6m2i-7duE-CGVDbEcnKFYcd5X_fyU)

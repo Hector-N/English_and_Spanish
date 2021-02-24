@@ -78,3 +78,7 @@ I am about to go to the university (I am going to enter the university).
 [KESPA_24_SP_1__2021_01_23__16_54.m4a](https://mega.nz/file/Bs8lFS5a#xINt_KXUWew9UJMvsEFiK9uiVzbPzJ8eJuqRVHIzf6M)  
 
 [KESPA_24_SP_2__2021_01_23__17_02.m4a](https://mega.nz/file/w19R2IBB#C6548VHiyy-qy68fskRWQTeN47O0K1ErVrmVBlft8AU)
+
+[KESPA_24_SP_1__2021_02_24__1334.3gpp](https://mega.nz/file/8g12TARC#zEDbbpkjtOooFRXFlvaAgfUMwiTD6I3NCrKFa--jaU8)
+
+[KESPA_24_SP_2__2021_02_24__1342.3gpp](https://mega.nz/file/t192nC6A#2F106PC_lfWWr8LYy4NTe2JykTu4edALtFVXG8aSEx0)
