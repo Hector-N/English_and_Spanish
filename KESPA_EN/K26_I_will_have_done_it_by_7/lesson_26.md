@@ -53,3 +53,7 @@ He will have fallen in love with her before he begins to speak too her.
 [KESPA_26_SP_2__2021_01_26__16_27.m4a](https://mega.nz/file/9hkmjaKT#ja-BlyHK4CfLtRxRqhfcy_P1j-pUljnI0XTo_aTzbBc)  
 
 [KESPA_26_SP_2__2021_01_26__21_44.wav](https://mega.nz/file/l18UiCyC#oV4serH3yLcQaSns8bZ19nq9o1FJce1fw0C0P658UPY)  
+
+[KESPA_26_SP_1__2021_02_28__1304.3gpp](https://mega.nz/file/Nkl0XY5I#HsdiI_9R2dtvYKwrJptH3CUL8v5lJsvtRr909XeUczs)
+
+[KESPA_26_SP_2__2021_02_28__1319.3gpp](https://mega.nz/file/8h0ghY6a#egVSjAxu3QsKXq8IVQCKPUAlvCRFfMLPSXUbTOJ6ALY)
