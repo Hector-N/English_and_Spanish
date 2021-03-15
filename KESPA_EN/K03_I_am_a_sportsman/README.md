@@ -48,3 +48,10 @@ Although she is a teacher (She is a teacher though)
 * honestly speaking; frankly speaking
 * What are you? What do you do? 
 * I am an expert at my job.
+
+
+## Practice (voice records)
+
+[KESPA_3_SP_1_SP_2__2021_03_14__1315.3gpp](https://mega.nz/file/Bgc0DBia#kf57JD2TK-5z4tOIiOBGUFG5i9xV2Dyc7OCP4G7B7wY)
+
+[KESPA_3_SP_2_continuation__2021_03_14__1319.3gpp](https://mega.nz/file/0gVWUDSB#ZdaQ-3wFhw33URE0-pl-UOAog_QHpQLHhu3F68Qx8bw)
