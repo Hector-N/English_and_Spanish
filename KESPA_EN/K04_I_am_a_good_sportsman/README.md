@@ -38,3 +38,8 @@
 * She is reserved and sad. And **on the whole** she is a pessimist.
 * Pensioners are seldom dreamers.
 * Frankly speaking, I am not a man of courage at all. What about you?
+
+
+## Practice (voice records)
+
+[KESPA_4_SP1_SP_2__2021_03_17__1336.3gpp](https://mega.nz/file/R5dwVLKQ#hcTrGmZyobn0LxoGw-amTfuGr7PcXUNm_MiTNu1gG_4)
