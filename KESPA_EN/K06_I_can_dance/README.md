@@ -35,6 +35,11 @@ He can dance.
 * together ~~togather~~
 
 
+## Practice (voice records)
+
+[KESPA_6_SP_1_SP_2__2021_03_18__1018.3gpp](https://mega.nz/file/V9lGBagQ#bnRco-n0WyYGbER67GTS3FbSyF_vUWaegwTEOrRTNoI)
+
+
 ## Phrases
 
 We are prejudiced neither against women nor against men.  
