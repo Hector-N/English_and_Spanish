@@ -94,5 +94,8 @@ Two ways to express this phrase :
     use **You are always doing it!**  
 
 
-## Pronunciation practice (voice record)
+## Practice (voice records)
+
 [KESPA lesson 8. speech technique 2. record20210102154240](https://mega.nz/file/E883EQrT#aa7PUzTbiB6Vk7ImWUDdP6oc-61ETII-44tbi_xd2m0)
+
+[KESPA_8_sp1_sp2__2021_03_21__0937.3gpp](https://mega.nz/file/E0lU1S6C#ThvVpdDpJPankJKBhQuGdILoz0hSSEpODfgU_Cmv1tQ)
