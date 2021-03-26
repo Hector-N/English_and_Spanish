@@ -43,10 +43,18 @@ How long has he been waiting for the bus?
 но глагол, обозначающий нужное действие, не применяется во временах группы **progressive** (см. ур 8),  
 то используется время **present perfect** (о котором в следующих уроках).  
 
-## Pronunciation practice (voice record)
+
+## Practice (voice records)
+
 [KESPA lesson 10. speech technique 2. record20210104225057](https://mega.nz/file/QgV21DLb#ZGpwESNNWLl-Bvgbz9biY2pysCwEha2Vq6txEpq70Ow)
+
 [KESPA_10_SP_1__2021_01_21__14_20.m4a](https://mega.nz/file/J891gYRa#LHmEb6SSBocMB_iCQ4uUsFRfwyDNA-qJ-OcDfqK4dS8)
+
 [KESPA_10_SP_2__2021_01_21__14_30.m4a](https://mega.nz/file/N80hkYwa#u4MgasRW4giQu4GdvZbYKppP1SIDbvTdH3T06Egsq9s)
+
+[KESPA_10_sp1_sp2__2021_03_25__1846.3gpp](https://mega.nz/file/t51RFYhB#KRAViqpKR9joBCZPXAM32uZswEueNbPZsBjP-H9CxaQ)
+
+
 
 ### Additional words
 * **pronunciation**
