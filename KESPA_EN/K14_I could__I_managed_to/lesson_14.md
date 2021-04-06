@@ -50,4 +50,7 @@ I couldn't speak to a foreigner yesterday.
 ## Pronunciation practice (voice record)
 
 [KESPA_14_SP2_record20210108143431.3gpp](https://mega.nz/file/Q4F0VZwb#YZnvau76BoLoNq1EXb5yABhpHKzRwdBjmG22yx9Vrbs)  
+
 [KESPA_14_SP2_record20210108143431_samsung_mobile.mp3](https://mega.nz/file/Q8dCVZLJ#ajR6lK1Jp2JXzliFLtyfcdZXCO07CgwVf7b-lfjTk9w)
+
+[KESPA_14_sp1_sp2__2021_04_06__1257.3gpp](https://mega.nz/file/Z4VVXAqQ#qY1L8jN5kAKmPhd_1NRZCyC7223p_wtkAfj1AbJVEWE)
