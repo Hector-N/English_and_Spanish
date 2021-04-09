@@ -225,3 +225,5 @@ It's the third time he has phoned this evening.
 [KESPA_17_SP2_record20210114113629.3gpp](https://mega.nz/file/sgVlRCxa#8FGTVuzxy8Ocd420otOkjqSzBE-06bosUUVn74H8H_o)
 
 [KESPA_16_sp1__2021_04_08__1253.3gpp](https://mega.nz/file/cg0SxCAa#cL56joM7wPGlKJsTKhaLEiNsFwtcBfsIVH8D918l7nw)
+
+[KESPA_17_sp1_sp2__2021_04_09__1007.3gpp](https://mega.nz/file/p480EY5D#ZZ3bdPeYNM-mI_gNhve0u08gZxJOnZYgT4bbRPo1iPc)
