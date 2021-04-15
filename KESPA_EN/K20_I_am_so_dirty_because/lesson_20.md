@@ -38,3 +38,5 @@ and I am tired because I have been painting it for too long.
 
 ## Pronunciation practice (voice records)
 [KESPA_20_SP_2__2021_01_19__09_42.m4a](https://mega.nz/file/YhlzwS6A#yGxNQ6AVFKvLmNLSXomBwF93qkd78NlvCa27R4lUmQk)
+
+[KESPA_20_sp2__2021_04_15__1500.3gpp](https://mega.nz/file/Z8ck1DDZ#Qf05fIZ_YIJ_YI0aThamQWA6GDXFMyO8lLrXdZFT6NU)
