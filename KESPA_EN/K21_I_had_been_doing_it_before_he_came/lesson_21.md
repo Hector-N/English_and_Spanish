@@ -51,3 +51,5 @@ We had known each other for 5 years before we decided to get married.
 
 ## Pronunciation practice (voice records)
 [KESPA_21_SP_2__2021_01_20__19_40.m4a](https://mega.nz/file/YplwQBiC#w7KXc1T8RF0ql6X6vo8NY16BGqbXZ67pJbQtHcOOLA4)
+
+[KESPA_21_sp2_2021_04_23__1818.3gpp](https://mega.nz/file/I4UyAbBS#tnMVWuZ7uO-jIdf4MbMNAhBBj6xnzU6pmyTzSMiGyf0)
