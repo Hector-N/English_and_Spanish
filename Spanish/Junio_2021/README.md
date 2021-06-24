@@ -7,3 +7,4 @@
 
 * [ES_Currículos_en_la_basura__rec_2021_06_23__2121.3gpp](https://mega.nz/file/ptcXlCiD#OhcVsXxjsVROVFKoHRR1ShCSVf_1ClJzOsN-VbyaXG4)
 
+* [ES_Currículos_en_la_basura__rec_2021_06_24__2008.3gpp](https://mega.nz/file/cpsgAQqT#4Ml2fggcoqYuFcXvSl4PSKuQvWeShn6NyITJG72ha1Q)

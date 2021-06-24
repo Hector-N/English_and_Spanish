@@ -1,9 +1,15 @@
 # Additional Examples
 
+## Set 01
+
+[KESPA_02_ADD_01__rec_2021_06_24__1946.3gpp](https://mega.nz/file/Zg1CUCQK#fgu-2ceKlyXmztshMxfjVkeBHeVKN66sOYbL9pWzSSo)
+
 
 ## Set 02. Lessons 1-4 
 
 [ADD_02__rec_2021_06_23__2056.3gpp](https://mega.nz/file/19EzAarR#NZTtZjZ63_VSO0eNQeX7Gc8ehFLOTgiLUZEltm2EkO0)
+
+[ADD_02__rec_2021_06_24__1959.3gpp](https://mega.nz/file/4tliyAYC#4ChY7ERgu7Rw8I8BROxOQDZE2rt7QrU__fP0EdGuc_s)
 
 __they are awful__
 
