@@ -1,33 +1,34 @@
-# Lesson 02. Я - умный. мне - холодно (to be)
+# Lesson 02. Я — умный. Мне — холодно (to be)
 
-## Verb 'to be': describe `characteristic` and `condition`
+## Verb 'to be': describe 'characteristic' and 'condition'
 
 The verb **to be**:
-* _has multi-meaning_
-* _is multifaceted_: am, are, is
-* _is self-sufficient_: no need of helper verb to construct question or negation  
+
+* _multi-meaning_
+* _multifaceted_: am, are, is
+* _self-sufficient_: no need of helper verb to construct question or negation  
 
 
-## ?
+## Question Form
 
 I am happy.  
 Am I happy?
 
 
-## Negation
+## Negation Form
 
 He is bored.  
-He is `not` (isn't) bored.  
+He **is not** **_(isn't)_** bored.  
 
 
 ## Nuances
 
-1. When talk about pets or animals - use `it` form
+1. When talk about **pets or animals** - use 'it form'
 
-2. Order of words: `<to be verb form>` then `<frequency words>`
+2. **Order of words**: `<to be verb form>` then `<frequency words>`
 
 
-## Context
+## Context Examples
 
 He is never sad, you know.
 
@@ -59,12 +60,6 @@ I wanted to ask, are you pleased with my work in general?
 Tell me, are you pleased with your progress this season?  
 
 Play the fool. That's what you're here for.  
-
-
-## New Words
-
-* understaffed
-* stuff
 
 
 ## Practice (voice records)
