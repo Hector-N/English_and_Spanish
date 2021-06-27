@@ -1,9 +1,13 @@
 # Lesson 01. Present Simple
 
-## Time spirit: 
+
+## Time spirit
+
 'routine' and 'repetition'
 
-## Keywords that describe 'routine' and 'repetition':
+
+## Keywords
+
 * usually
 * every day
 * twice a week
@@ -27,24 +31,34 @@
 * every Saturday
 * in winter/summer/spring/autumn
 
+
 ## f()
+
 An infinitive verb without 'to'.
 
-## ?
+
+## Question Form
+
 do / does
 
-# not
+
+# Negation Form
+
 do not / does not
 
-## Nuances:
+
+## Nuances
+
 1. __frequency_word__ (often, seldom, usually, always, never) __verb__  
     I seldom drink coffee
 2. __sentence__ __expr(quite often, rather seldom, very often/seldom)__
 3. verbs in 3-rd form single --> suffix 's'
 4. There is no double negation in English
     He never drinks coffee. - Он никогда не пьет кофе.
+
    
 ## Lexical minimum
+
 * quite, rather - довольно
 * a husband
 * a coffee
@@ -66,7 +80,9 @@ do not / does not
 * to read
 * to do the room
 
-## Idioms:
+
+## Idioms
+
 * to play the fool
 * to see day light - видеть выход из положения
 * to lose one's temper
