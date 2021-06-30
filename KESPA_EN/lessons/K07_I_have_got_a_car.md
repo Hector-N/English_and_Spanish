@@ -1,37 +1,39 @@
 # Lesson 7. I have got a car. I have a car
 
+
 ## Concept
 
-Express the idea having | possessing something.  
+Express the idea having | possessing something:  
+
 1. verb **to have**. 
 2. expression **have got**
 
 
-## Affirmative
+## Affirmation Form
 
-I `have` a car.  
+I **have** a car.  
 
-I `have got` a car. (I've got..., She's got...)  
-I `has got` a car. (She's got...) 
-
-
-## Negation
-
-I `have no` car.  
-I `have not` a car.  
-I `do not have` a car.  
-
-I `have not got` a car.
+I **have got** a car. (I've got..., She's got...)  
+I **has got** a car. (She's got...) 
 
 
-## Question
+## Negation Form
 
-`Do I have` a car?  
+I **have no** car.  
+I **have not** a car.  
+I **do not have** a car.  
 
-`Have I got` a car?
+I **have not got** a car.
 
 
-## Idiomatic(al) Expressions (Phrases)
+## Question Form
+
+**Do I have** a car?  
+
+**Have I got** a car?
+
+
+## Idiomatic Expressions
 
 * to have one's head in the clouds
 * to have an eye for
@@ -40,6 +42,7 @@ I `have not got` a car.
 * to have a nose for
 * to have a good ear for music
 * He (she) is such a dear
+
 
 ## Practice (voice records)
 

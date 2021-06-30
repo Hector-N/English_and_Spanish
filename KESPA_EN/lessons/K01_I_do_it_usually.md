@@ -84,13 +84,13 @@ do not / does not
 ## Idioms
 
 * to play the fool
-* to see day light - видеть выход из положения
+* to see daylight - видеть выход из положения
 * to lose one's temper
 * to get out of bed on the wrong side
 * to break one's back
 * to break one's back at work
 
 
-## Practice (voice records)
+## Pronunciation practice (voice record)
 
 [KESPA_1__SP1_SP_2__2021_03_12__1558.3gpp](https://mega.nz/file/0pk2VBYY#egUFf4tCcShGD9RPOh8c5V16IJwmHH_pbXkrX-hEltA)

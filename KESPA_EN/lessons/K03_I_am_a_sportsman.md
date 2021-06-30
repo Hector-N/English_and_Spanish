@@ -1,23 +1,31 @@
 # Lesson 3. Я - спортсмен. Мы - ученики
 
-## To express these constructs  -> use verb 'to be':
+To express these constructs  -> use verb '__to be__'
 
-### In singular use article `-a-`. In plural add suffix `-s-`:
+### In singular use article `-a-`. In plural add suffix `-s-`
+
 I **_am_** **a** programmer.  
+
 We **_are_** programmer**s**.  
 
-### ? Simple rearrange
+### Question Form
+
 **_Am_** I a programmer?  
+
 **_Are_** we programmers?  
 
-### Names and surnames - no need article `-a-`:
+### Names and surnames - no need article "-a-"
+
 I **_am_** Novichenko.  
 
-### Exception in some plural nouns:
+### Exception in some plural nouns
+
 She **_is_** a `woman`.  
+
 They **_are_** `women`.  
 
 ## Examples
+
 I'm afraid, he is an absolute nothing.  
 
 Are you an interpreter? - Yes, I am. And how about you?  
@@ -36,7 +44,9 @@ She is a life and soul of the party.
 She never loses her temper and plays the fool quite often.  
 Although she is a teacher (She is a teacher though)
 
+
 ## Words and Expressions
+
 * afraid
 * t**ea**cher
 * a big shot
@@ -50,7 +60,7 @@ Although she is a teacher (She is a teacher though)
 * I am an expert at my job.
 
 
-## Practice (voice records)
+## Pronunciation practice (voice records)
 
 [KESPA_3_SP_1_SP_2__2021_03_14__1315.3gpp](https://mega.nz/file/Bgc0DBia#kf57JD2TK-5z4tOIiOBGUFG5i9xV2Dyc7OCP4G7B7wY)
 

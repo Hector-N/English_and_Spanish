@@ -1,8 +1,9 @@
-# Lesson 4. I am a sportsman. I am a _good_ sportsman.
+# Lesson 4. I am a sportsman. I am a good sportsman.
 
 ## {article} **{adjective}** {noun}
 
 ## Nuance 1
+
 -Is he a teacher?  
 -Yes, he is.  
 -Is he a good **one**?  
@@ -12,10 +13,11 @@
 -Yes, they are.  
 -Are they good **ones**?   
 
+
 ## Words and expressions
 
 * to mix with; to communicate with
-* fine, splendid, excelent
+* fine, splendid, excellent
 * reserved
 * nasty, loathsome, disgusting
 * sociable
@@ -40,6 +42,6 @@
 * Frankly speaking, I am not a man of courage at all. What about you?
 
 
-## Practice (voice records)
+## Pronunciation practice (voice records)
 
 [KESPA_4_SP1_SP_2__2021_03_17__1336.3gpp](https://mega.nz/file/R5dwVLKQ#hcTrGmZyobn0LxoGw-amTfuGr7PcXUNm_MiTNu1gG_4)
