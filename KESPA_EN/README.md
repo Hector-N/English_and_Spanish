@@ -3,6 +3,8 @@
 
 ## Lessons
 
+[Additional Examples](additional_examples/README.md)
+
 [Lesson 01 - I_do_it_usually](lessons/K01_I_do_it_usually.md)
 
 [Lesson 02 - I_am_smart](lessons/K02_I_am_smart.md)

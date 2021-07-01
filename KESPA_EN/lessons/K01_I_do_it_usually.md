@@ -94,3 +94,5 @@ do not / does not
 ## Pronunciation practice (voice record)
 
 [KESPA_1__SP1_SP_2__2021_03_12__1558.3gpp](https://mega.nz/file/0pk2VBYY#egUFf4tCcShGD9RPOh8c5V16IJwmHH_pbXkrX-hEltA)
+
+[KESPA_01_sp2__2021_07_01__1453.3gpp](https://mega.nz/file/099CAY7L#BmecPQA0GCq0iCyAshKjn4jS4rvz7qn53K9pk8zu_PQ)

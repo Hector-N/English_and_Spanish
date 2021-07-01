@@ -7,6 +7,8 @@ Jump to:
     * [Set 01](#set-01)
         
     * [Set 02](#set-02---lessons-1-4)
+  
+    * [Set 03](#set-03)
 
 
 ## June 2021
